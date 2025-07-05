@@ -1,0 +1,5 @@
+## ***Melanoma - Caso do Dr. Sampaio no dermlist de 18/06/2007***
+
+
+Há 20 ou 30 anos tive ocasião de examinar um empresário, proprietário de navios de pesca, de Vigo, Espanha, que veio para São Paulo, para cuidar de negócios. Tinha acabado a guerra das Malvinas, e a Inglaterra permitiu a vinda de barcos espanhóis para a pesca em redor das possessões inglesas. Tendo ele permanecido alguns dias em São Paulo, consultou-me a respeito de um nódulo na axila direita, para o qual colegas espanhóis não tinham dado importância. Era um linfonodo e solicitei exame citológico. Para minha surpresa revelou células melanocíticas displásicas. O linfonodo foi retirado e a histopatologia demonstrou melanoma. Este paciente tinha a pele clara,foto tipo I, com numerosos nevos displásicos e havia retirado alguma lesões em Vigo. Regressou para a Espanha e foi encaminhado para seguimento com o Prof. Mascaró em Barcelona. Não fez nenhum tratamento e segundo noticias está perfeitamente bem. Posso formular a possibilidade de ter tido um melanoma, que foi retirado, e que tinha uma única metástase no linfonodo axilar.
+
